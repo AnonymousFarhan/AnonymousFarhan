@@ -1,0 +1,1 @@
+I am a professional video editor, I do film making, Programming/Coding and IT related stuff. This is my passion and I work hard to one day bring this talent forward and achieve big as I think I have a POV and a vision, none like other!
